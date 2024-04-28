@@ -5,7 +5,7 @@ By focusing on whole, nutrient-dense foods and controlling portion sizes, you ca
 
 Incorporating these habits into your daily routine can help you achieve optimal health in today's fast-paced world.
 
-# The Importance Of Health Eating Habits
+# The Importance Of Healthy Eating Habits
 Healthy eating habits are essential for maintaining overall health and well-being. They provide the body with the necessary nutrients, vitamins, and minerals to function effectively. Here are some key reasons why healthy eating habits are important:
 
 ## Nutrient Intake:
