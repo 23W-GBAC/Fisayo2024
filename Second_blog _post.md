@@ -23,4 +23,6 @@ If you're struggling to make healthy choices, don't be afraid to seek support fr
 ## 7. Stay Positive:
 Finally, it's important to stay positive and focused on your goals. Changing habits takes time, and it's okay to have setbacks along the way. Celebrate your successes, no matter how small, and learn from any challenges you encounter.
 
+# Conclusion
+
 In conclusion, achieving and maintaining good health in a world filled with temptations requires a balanced approach. By practicing mindful eating, making healthier choices, staying active, monitoring your waist-to-hip ratio, seeking support, and staying positive, you can reduce your risk of developing diabetes and improve your overall well-being. Remember, it's about progress, not perfection.
