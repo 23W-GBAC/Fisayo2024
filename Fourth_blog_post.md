@@ -6,6 +6,7 @@ Here's a personalized analysis based on my interests:
 
 ## Development Costs: 
 Designing and developing an automated calculator would require resources such as time, expertise, and potentially hiring developers if you don't have the necessary skills.
+For me since its online, I created the html file easily and effectively withouth spending too much time.
 
 ## Maintenance Costs: 
 Once developed, the calculator would require maintenance to ensure it remains accurate and up to date with any changes in calculation methods or standards.
